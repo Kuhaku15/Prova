@@ -1,3 +1,0 @@
-Wasa
-Epico
-Pragmatico
